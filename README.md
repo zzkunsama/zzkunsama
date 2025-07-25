@@ -1,6 +1,6 @@
 <img align="right" src="https://count.getloli.com/get/@:zzkunsama?theme=rule34">
 
-## it技术讲师
+## IT从业者
 
 互联网从业者，热爱学习新鲜事物。
 
